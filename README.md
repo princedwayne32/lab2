@@ -1,4 +1,1 @@
-"# lab2" 
-"# lab2" 
-"info about this project" 
-"# lab2" 
+i love lebron james and luka doncic
